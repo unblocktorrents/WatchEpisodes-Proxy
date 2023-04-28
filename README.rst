@@ -1,12 +1,12 @@
 ##################
-WatchEpisdoes Proxy - 100% Working WatchEpisdoes Mirror Sites 2021
+WatchEpisdoes Proxy - 100% Working WatchEpisdoes Mirror Sites 2023
 ##################
 
 It is really sad because if your country or ISP has blocked WatchEpisdoes website in your internet then you can't access it directly. However, there are some alternative ways to access WatchEpisdoes4 even if it's blocked in your country. These proxies are hosted in countries where WatchEpisdoes is not blocked. These WatchEpisdoes proxies can still deliver the content of WatchEpisdoes to you!
 
 Unblock WatchEpisdoes with proxy
 
-- https://watchepisodes.torrentbay.to/
+- https://watchepisodes.torrentbay.to
 
 More proxy sites in
 
